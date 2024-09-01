@@ -49,5 +49,6 @@
 
 &nbsp;
 &nbsp;
+&nbsp;
 
-*There may be other things to question and consider, but these seem to be the most immediate and prominent.
+***There may be other things to question and consider, but these seem to be the most immediate and prominent.**
