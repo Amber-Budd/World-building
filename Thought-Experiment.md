@@ -3,7 +3,9 @@
 **The thought**: What if there was a world where, every time someone died, they became a ghost? Without fail, 100% guaranteed, every person who has ever lived becomes a ghost upon death, visible to everyone else. Their appearance and mental capacity are returned to the optimal state from their physical life, and possession is an impossibility.  
 
 **Further questions and observations**:
+
 -How does a ghost life work? Is a ghost life infinite, or does it have a natural ending?
+
 &nbsp;&nbsp;&nbsp;&nbsp;Ghosts can finally perish either through ritualistic expulsion OR by their last living descendant expiring. “Descendant” would be defined as the direct line of biological relatives from father/mother to child, etc. Nieces, nephews, and the like do not count in this situation. Adopted children do not prolong the ghost lives of their adoptive parents but of their biological parents, even if they are unknown.
 	Furthermore, ghosts would fall under two categories, randomly “assigned” to them upon their deaths: the first is Vapor—these ghosts are only visible. They cannot interact with the living world/people/objects and are incapable of vocalizing. The second type is Interactive—these can minimally interact with corporeal items (i.e., mimic the sensory experience of skin-to-skin contact, knock around small objects), and speak. Ghost life limits their capabilities for certain, but far less so that of Vapor ghosts.
 
