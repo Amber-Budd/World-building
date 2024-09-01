@@ -47,6 +47,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;There would need to be some if ghosts are a major population demographic. Primarily, rights to existence (cannot be forced into banishment despite having already died) and rights to choosing their second death (if they wish to pass before their descendants die, they are allowed to do so). Would need to consider rules surrounding what happens to their possessions and the disposal of bodies. Many of the laws and rights would apply to both the living and the ghosts. Again, would require deeper research into laws and constitutions of the real world to determine common themes to be modified for a fictional setting.
 
-
+&nbsp;
+&nbsp;
 
 *There may be other things to question and consider, but these seem to be the most immediate and prominent.
