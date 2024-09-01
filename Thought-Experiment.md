@@ -41,7 +41,7 @@
 
 *-Possibility of unique scientific fields based on the study of ghosts?*
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Maybe to try and pinpoint how ghosts work and ground it in scientific fact rather than religious assumptions? Unsure what kind of theoretical testing that would involve; might require further research into existing scientific methods.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Maybe to try and pinpoint how ghosts work and ground it in scientific fact rather than religious assumptions? Unsure what kind of theoretical testing that would involve; requires further research into existing scientific methods.
 
 *-What would be the legal protections and rights specifically for the ghosts? Are there any?*
 
