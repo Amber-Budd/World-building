@@ -37,8 +37,16 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It’s unlikely that ghosts would return to regular jobs like grocer, librarian, or secretary. But they could still serve as politicians, writers (publishing posthumously with some help on the physical side), scientists, and researchers (again, with some help). Jobs that focus on the ability to think and not necessarily physical capabilities could be filled by ghosts. Otherwise, ghost life would act as a prolonged retirement where they aid in raising their families as much as they can. 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Sleep and housing are not necessary for ghosts to survive but are wanted as comforts since they are used to having a “home.” After their first deaths, ghosts’ physical properties are handed off to descendants who let some ghosts live with them or send them to live in a designated ghost residence. Tall buildings to maximize space, maybe miniature cities/towns solely focused on housing the dead? Diversity in city demographics. 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Sleep and housing are not necessary for ghosts to survive. Sleep itself has no benefits for them without a body, and they are not affected by the weather and elements. However, if ghosts are used to be living humans, comforts like housing might be wanted as it is what they are used to (which also brings up questions of ghostly mental health). After their first deaths, ghosts’ physical properties are handed off to descendants. If their cities/towns/etc. allow it, those descendants may let some of the ghosts continue to live in their previous residence. Otherwise they are sent to live in a designated ghost residence. Taking into account the size of the ghost population and limits of space in the physical world, ghost residences might appear as extreme skyscraper buildings that maximize space, maybe even organized into miniature cities/towns that are solely focused on housing the dead and providing them with accessible recreational activities. This is not a utopia world, so some urban locations or specific establishments might prohibit ghosts (or the living) from regular usage. In-world excuses for this might venture along the lines of "this environment is not suited to the living/dead, so this is how we avoid awkward interactions." Varying degrees of approval and disproval towards this approach.
 
 *-Possibility of unique scientific fields based on the study of ghosts?*
 
-*-What would be the legal protections and rights for the ghosts? Are there any?*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Maybe to try and pinpoint how ghosts work and ground it in scientific fact rather than religious assumptions? Unsure what kind of theoretical testing that would involve; might require further research into existing scientific methods.
+
+*-What would be the legal protections and rights specifically for the ghosts? Are there any?*
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;There would need to be some if ghosts are a major population demographic. Primarily, rights to existence (cannot be forced into banishment despite having already died) and rights to choosing their second death (if they wish to pass before their descendants die, they are allowed to do so). Would need to consider rules surrounding what happens to their possessions and the disposal of bodies. Many of the laws and rights would apply to both the living and the ghosts. Again, would require deeper research into laws and constitutions of the real world to determine common themes to be modified for a fictional setting.
+
+
+
+*There may be other things to question and consider, but these seem to be the most immediate and prominent.
