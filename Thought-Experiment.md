@@ -21,7 +21,7 @@
 
 *-Further thinking: how does this affect relationships (specifically marital)?*
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;For the most part, dating and marriage would work as expected. For those who are infertile or can’t have children, finding a partner might be more difficult. Yet, if having children is now important—or even necessary—then it is feasible to say that extensive research has been done in medical science over the centuries to create a range of technologies and treatments that make biological procreation more consistent. The downside is that, like most medical procedures, it would be an expensive process that not everyone can afford. So, depending on an individual’s income, marital relationships might be defined by their ability to have children.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;For the most part, dating and marriage would work as expected. For those who are infertile or can’t have children, finding a partner might be more difficult. Yet, if having children is now important—or even necessary—then it is feasible to say that extensive research has been done in medical science over the centuries to create a range of technologies and treatments that make biological procreation more consistent. The downside is that, like most medical procedures, it would be an expensive process that not everyone can afford. So, depending on an individual’s income, marital relationships might be defined by their ability to have children or to afford medical intervention.
 
 *-How does the expulsion ritual work? Is it viewed as a job anyone can become qualified to perform, or is it more akin to a religion?*
 
