@@ -13,7 +13,7 @@
 
 *-Does the long-standing “survival” of well-preserved families over smaller lines determine power hierarchies and control?*
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;If ghosts from centuries past are still around, then this would heavily affect the political atmosphere in most places. The influence of some of the longest existing family lines would dominate over that of the living and shorter lines. Political structures similar to oligarchies and monarchies might arise around the world depending on geographic locations and the preferences of the people living in those places. Whatever the case may be, it would be comparable to real-world politics, with ghost lines being the determining factor of power rather than money, prestige, or persuasiveness. 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;If ghosts from centuries past are still around, then this would heavily affect the political atmosphere in most, if not all, places. The influence of some of the longest existing family lines would dominate over that of the living and shorter lines. Political structures similar to oligarchies and monarchies might arise around the world depending on geographic locations and the preferences of the people living in those places. Or there might be a unique political structure designed because ghosts are a regular known phenomenon. Whatever the case may be, it would be comparable to real-world politics, with ghost lines being the determining factor of power rather than money, prestige, or persuasiveness. 
 
 *-Regarding rules of ghost survival, does this affect the societal norms of child-rearing?*
 
