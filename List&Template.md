@@ -1,6 +1,6 @@
 # List and Template Workshop 9/20
 
-*Note: I tried to answer as many questions posed during the first discussion as possible. However, I wanted to spend a large portion of this workshop expanding on power dyanimcs and political circumstances, so please feel free to ask for clarification on anything I didn't elaborate on!*
+*Note: I tried to answer as many questions posed during the first discussion as possible. However, I wanted to spend a larger portion of this workshop expanding on power dyanimcs and political circumstances, so please feel free to ask for clarification on anything I didn't elaborate on!*
 
 
 **I. Further Details/Response to Questions**
