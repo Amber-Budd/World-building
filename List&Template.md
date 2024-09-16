@@ -1,4 +1,4 @@
-# List and Template Workshop (9/20)
+# List and Template Workshop (9/20) 
 
 *Note: I tried to answer as many questions posed during the first discussion as possible while still keeping this relevant. However, I spent more time thinking about/expanding on power dyanimcs and political circumstances (Section IV), so please feel free to ask for clarification on anything I didn't elaborate on!*
 
