@@ -1,5 +1,5 @@
 # List and Template Workshop Sept. 20
-Note: I tried to answer as many questions posed during the first discussion as possible while still keeping this relevant. However, I spent more time thinking about/expanding on power dyanimcs and political circumstances, so please feel free to ask for clarification on anything I didn’t elaborate on!
+*Note: I tried to answer as many questions posed during the first discussion as possible while still keeping this relevant. However, I spent more time thinking about/expanding on power dyanimcs and political circumstances, so please feel free to ask for clarification on anything I didn’t elaborate on!*
 
 ## I. Further Details/Response to Some Questions
 
@@ -33,7 +33,7 @@ Note: I tried to answer as many questions posed during the first discussion as p
 
 ## IV. Power and Politics
 
-*A Note: Power and authority are not innate qualities. Something bestows power on a person, like a majority vote or the belief in divine anointment. Power can also be symbolic rather than physical. These are things I had to consider when laying out the politics of ghosts, and I’m not 100% set on the following points being the functioning system. Nor am I certain it makes any sense. So, I’m particularly looking for feedback on this section – especially if you have more knowledge in politics and power dynamics than I do!
+**A Note: Power and authority are not innate qualities. Something bestows power on a person, like a majority vote or the belief in divine anointment. Power can also be symbolic rather than physical. These are things I had to consider when laying out the politics of ghosts, and I’m not 100% set on the following points being the functioning system. Nor am I certain it makes any sense. So, I’m particularly looking for feedback on this section – especially if you have more knowledge in politics and power dynamics than I do!*
 
 •	Ghost power/authority stems from their ability to preserve their line and protect their lineage. By doing so, a family is seen as strong both physically (the line does not die out from illness) and strategically (it takes a lot of planning and quick thinking to protect the line from outside influences).
 
