@@ -13,7 +13,7 @@ Note: I tried to answer as many questions posed during the first discussion as p
 
 •	After death, the ghost life begins immediately. Some don’t even know they’ve died until they realize they can no longer fully interact with the physical world. Grief is no longer primarily centered around the loss of a person, but also on the fundamental change in their presence.
 
-II. Legality
+## II. Legality
 
 •	Jail time and life sentences have to be more clearly defined because of ghosts. Sentences do carry out into a ghost life, so there’s no getting out of it by dying. Ghost longevity has also inspired a new set of life sentences and categories. The typical life sentence is now categorized as 85 years, or until first death if they are still living at the end of 85 years. Once they are ghosts, they are sent through a legally protected rigorous evaluation process to determine if their ghost should be allowed to reintegrate into society. If this evaluation comes back as a failure, they are sent to a Condemnation jail (loaded down with Spectral Stone), which houses them. Reevaluation occurs every 50 years after initial Condemnation. Every jail and jail cell (not just in Condemnation) contains some amount of Spectral Stone so that no one is tempted to escape justice via suicide. 
 
@@ -21,7 +21,7 @@ II. Legality
 
 •	Murder rates are decreased in many cases because it really doesn’t do much anymore. There are still some oddball serial killers and murders committed in the midst of other crimes. Otherwise, murder is “accidental” (think car accidents; still murder, but not premeditated) or done so with the intention of ending a line. “Murder laws” allow ghosts to testify in court if they are determined to be of sound mind, with the punishment of the perpetrator varying depending on individual circumstances and intentions.
 
-III. Culture
+## III. Culture
 
 •	First death is viewed as a scare or a warning that there is only one “life” left before true death. Being a ghost isn’t all horrible—there are ways to enjoy a ghost life, even if it differs from living, though many still agree that life is better than being a ghost, no matter what perks there are. What comes after second death is still a mystery and dependent on personal beliefs. There’s just an extra step between life and the unknown after.
 
@@ -31,7 +31,7 @@ III. Culture
 
 •	From an artistic perspective, ghosts are still appreciated (and paid) for their contributions to the arts. With centuries of experience in some cases (like actors), their skill is often too great to be ignored. In scenarios where artistic talent is judged, ghosts are held in separate categories from the living. It’s not entirely fair to judge a living forty-year-old and a ghost fifteen-hundred-year-old in the same way.
 
-IV. Power and Politics
+## IV. Power and Politics
 
 *A Note: Power and authority are not innate qualities. Something bestows power on a person, like a majority vote or the belief in divine anointment. Power can also be symbolic rather than physical. These are things I had to consider when laying out the politics of ghosts, and I’m not 100% set on the following points being the functioning system. Nor am I certain it makes any sense. So, I’m particularly looking for feedback on this section – especially if you have more knowledge in politics and power dynamics than I do!
 
