@@ -1,29 +1,48 @@
 # List and Template Workshop Sept. 20
 Note: I tried to answer as many questions posed during the first discussion as possible while still keeping this relevant. However, I spent more time thinking about/expanding on power dyanimcs and political circumstances, so please feel free to ask for clarification on anything I didn’t elaborate on!
 
-I. Further Details/Response to Some Questions
+## I. Further Details/Response to Some Questions
+
 •	The expulsion ritual was discovered nearly a millennia ago through the collaborative efforts of ghosts and the living. The hope was to find a solution to ease the passing of ghosts who did not want to wait however many thousands of years it took for their descendants to die without children. Now, whether the ritual was a pre-existing condition that needed to be found or something accidentally created from necessity by those early researchers is one of the mysteries of the world.
+
 •	Ghosts can be completely unaware of the ritual taking place. Though the expulsion ritual requires their acceptance of the intercessor’s prayer, it has since been found that “acceptance” is very loosely defined. It is not so much the intention behind the ghost’s acceptance but the verbal acknowledgment. So, if someone were to guide a ghost to an appropriate place, mutter a prayer without the ghost hearing, and get said ghost to utter some phrase of acceptance (even a simple “thank you” will do the trick), then the ghost will have been successfully expelled without their knowing. There is some concern in the world over how easy it is for a ghost to be properly killed, but to be fair, it’s not hard to kill a living person, either. As such, many ghosts seem to lack certain manners in conversations. It is not always a case of rudeness—sometimes, it is simply an act of self-preservation.
+
 •	There is a way to physically prevent ghosts from entering certain locations, or rather, to prevent them from crossing designated boundaries. A non-renewable mineral was discovered in recent centuries that, for whatever reason, repels ghosts from coming within five feet of it. No one knows how or why it does this—it’s basically just a rock with no identifiably “unique” qualities that indicate it should have an anti-ghost field. It has a scientific name, but it is colloquially referred to as “Spectral Stone.” This mineral can be put in building foundations or flooring to prevent ghosts from passing into a place, but since it is a non-renewable resource, there is an extensive application process to the mining companies/government for those who don’t have the means to dig it up themselves. Many get denied.
+
 •	Some Vapors use sign language to communicate. Others are content to finally be left in peace and don’t bother learning. 
+
 •	After death, the ghost life begins immediately. Some don’t even know they’ve died until they realize they can no longer fully interact with the physical world. Grief is no longer primarily centered around the loss of a person, but also on the fundamental change in their presence.
 
 II. Legality
+
 •	Jail time and life sentences have to be more clearly defined because of ghosts. Sentences do carry out into a ghost life, so there’s no getting out of it by dying. Ghost longevity has also inspired a new set of life sentences and categories. The typical life sentence is now categorized as 85 years, or until first death if they are still living at the end of 85 years. Once they are ghosts, they are sent through a legally protected rigorous evaluation process to determine if their ghost should be allowed to reintegrate into society. If this evaluation comes back as a failure, they are sent to a Condemnation jail (loaded down with Spectral Stone), which houses them. Reevaluation occurs every 50 years after initial Condemnation. Every jail and jail cell (not just in Condemnation) contains some amount of Spectral Stone so that no one is tempted to escape justice via suicide. 
+
 •	The death penalty remains the same, aside from an extra step. It is given sparingly, but when given, it is done so with the belief that a grievance too catastrophic to be forgiven has been committed. A person given the death penalty is executed in a 5x5 ft square zone marked by Spectral Stone. Upon death, the ghost is trapped in that one spot until the expulsion ritual can be completed.
+
 •	Murder rates are decreased in many cases because it really doesn’t do much anymore. There are still some oddball serial killers and murders committed in the midst of other crimes. Otherwise, murder is “accidental” (think car accidents; still murder, but not premeditated) or done so with the intention of ending a line. “Murder laws” allow ghosts to testify in court if they are determined to be of sound mind, with the punishment of the perpetrator varying depending on individual circumstances and intentions.
 
 III. Culture
+
 •	First death is viewed as a scare or a warning that there is only one “life” left before true death. Being a ghost isn’t all horrible—there are ways to enjoy a ghost life, even if it differs from living, though many still agree that life is better than being a ghost, no matter what perks there are. What comes after second death is still a mystery and dependent on personal beliefs. There’s just an extra step between life and the unknown after.
+
 •	Ghost life has its own intrigue, so most warm up to it enough to not be envious of the living. The living are seen as protectors of ghost survival and enactors of their will. Many are defensive/protective of family members, with a small minority who are jealous and become vengeful (or vengeful-adjacent). 
+
 •	Ghosts are allowed to get jobs as something to do, but those who choose to do so are still paid for their work. Unlike the living, however, ghost wages have certain expectations/rules as to what they should spend their money on. Though not required, it is expected that ghosts will give a small portion of their wages to their living descendant(s) to guarantee they have enough to live on and raise children with. It’s a courtesy payment, but not all ghosts do so (and not all living people expect it, though there have been many legal battles over this). What is required is that they spend the majority of their money as a form of “rent” (for lack of a better term). This “rent” funds the maintenance of ghost habitation facilities and ghost recreational opportunities that all governments provide. Without ghosts providing some of the funds for such major infrastructure, the living would have exorbitant taxes, which is simply a system that does not function. 
+
 •	From an artistic perspective, ghosts are still appreciated (and paid) for their contributions to the arts. With centuries of experience in some cases (like actors), their skill is often too great to be ignored. In scenarios where artistic talent is judged, ghosts are held in separate categories from the living. It’s not entirely fair to judge a living forty-year-old and a ghost fifteen-hundred-year-old in the same way.
 
 IV. Power and Politics
+
 *A Note: Power and authority are not innate qualities. Something bestows power on a person, like a majority vote or the belief in divine anointment. Power can also be symbolic rather than physical. These are things I had to consider when laying out the politics of ghosts, and I’m not 100% set on the following points being the functioning system. Nor am I certain it makes any sense. So, I’m particularly looking for feedback on this section – especially if you have more knowledge in politics and power dynamics than I do!
+
 •	Ghost power/authority stems from their ability to preserve their line and protect their lineage. By doing so, a family is seen as strong both physically (the line does not die out from illness) and strategically (it takes a lot of planning and quick thinking to protect the line from outside influences).
+
 •	Public respect and trust in someone (or multiple someones) grant power. People believe in someone who can reliably sustain and protect a large number of people and ensure financial stability (arguably, without money, people die pretty quickly if they can’t afford food or basic necessities). 
+
 •	But let’s not kid ourselves. Politics is rarely left to naturally run its course. Money buys friends, alliances get made, and unofficial rules of play affect some decisions. Survival and size of a line may be the foundation of power, but ghosts have knowledge, connections, and cultivated prestige that affects their ability to hold power after it’s been granted to them.
+
 •	Ghosts who are so inclined to try and preserve their living family’s power and/or political standing may forgo direct payments to the family and instead use whatever money they’ve accrued in death to pay for the support or defense of their relatives, depending on the strength of their morals. 
+
 •	There are a lot of old ghosts in this world, which means there is a much larger variation in opinions of how modern society should be operated. The older ghosts also have more contacts and sway among the living and dead/have had time to cultivate a positive public persona. Thus, there is an unofficial subset of ghost politics where they work behind the scenes to try and manipulate power among the living to their family’s favor.
+
 •	With situations like monarchies (or other hereditary governments), it functions similarly to the real world. Upon death, the previous ruler must hand over rule to their descendant to prevent one person from holding control for thousands of years. However, the laws permit the ghosts preceding the living ruler(s) to serve as an advisory council to their heir. This law exists to create a strong outward appearance of ruling families and to (hopefully) prevent the dead previous rulers from trying to take back rule, since they still have a hand in the politics.
